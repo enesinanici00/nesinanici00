@@ -1,4 +1,4 @@
-# enesinanici00
+# enesinanici
 
 ### Hi there, I'm Abdullah Enes İnanıcı! 👋
 
